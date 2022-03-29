@@ -1,1 +1,1 @@
-“什么都略懂一点，生活更多彩一些。”
+fanmcgrady is the best programmer!
