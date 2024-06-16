@@ -1,2 +1,2 @@
-# fanmcgrady is the best programmer!!!
+# 编程狂热分子
 
